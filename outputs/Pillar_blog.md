@@ -1,7 +1,6 @@
 # Best Dental Clinic in Bangalore – Services, Cost & What to Expect
 
 
-(clinic_interior.jpg)
 
 
 
