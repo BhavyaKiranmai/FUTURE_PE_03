@@ -1,7 +1,7 @@
 # Best Dental Clinic in Bangalore – Services, Cost & What to Expect
 
 
-![SmileCare Dental Clinic](clinic_interior.jpg)
+(clinic_interior.jpg)
 
 
 
